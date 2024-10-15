@@ -8,4 +8,4 @@
 
 ✨ Fun fact: I'm good at growing indoor plants. I have lots of them, and they make me feel calm when I'm surrounded by data stuff.
 
-📫 Feel free to reach out to me via email at mail@ajaymohan.net to connect and explore potential collaborations. Let's embark on this data-driven journey together!
+📫 Feel free to reach out to me via email at ajaymohan.0211@gmail.com to connect and explore potential collaborations. Let's embark on this data-driven journey together!
